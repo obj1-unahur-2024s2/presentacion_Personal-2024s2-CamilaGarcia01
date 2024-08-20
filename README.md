@@ -12,5 +12,5 @@ Buenas, mi nombre es Camila Garcia, actualmente estoy cursando el cuarto cuatrim
 * Los michis
 
 
-## Nos deseo éxitos a todos!
+## Éxitos para todos!
 
