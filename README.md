@@ -7,7 +7,7 @@ Buenas, mi nombre es Camila Garcia, actualmente estoy cursando el cuarto cuatrim
 
 ## Gustos
 * Cocinar cosas dulces
-* Mates en cualquier lugar
+* Matecitos en cualquier lugar
 * Películas y series de suspenso
 * Los michis
 
